@@ -1,1 +1,1 @@
-https://www.allstatecareer.edu/
+https://www.allstatecareer.edu
